@@ -23,3 +23,5 @@
 👉 260426: capsaicin alternative: https://sendgb.com/pyNq5vMXxLh
 
 👉 260428: ai era: https://sendgb.com/W0bFDNOirmU
+
+👉 260428: motor design: https://sendgb.com/Eyz8PnF67R5
