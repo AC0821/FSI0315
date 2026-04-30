@@ -25,3 +25,5 @@
 👉 260428: ai era: https://sendgb.com/W0bFDNOirmU
 
 👉 260428: motor design: https://sendgb.com/Eyz8PnF67R5
+
+👉 260430: CV checker: https://chatgpt.com/g/g-69ef673af27c8191a99f29327f34c40f-ai-job-cv-evaluator-hiring-ceo-simulator
