@@ -10,3 +10,5 @@
 👉 260529: Ventum wind turbine(New) https://sendgb.com/w8S0oX3n2qM
 
 👉 260601: Vibe coding data https://sendgb.com/IWnQwONZRdM
+
+👉 260601: Runnable Robot and Training course https://sendgb.com/qHDtvEe1CBr
