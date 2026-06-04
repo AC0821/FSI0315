@@ -5,12 +5,6 @@
  
 👉 260529: prompt engineering, job interview tips(receive failed, retry): https://sendgb.com/Bude3yAqlLJ
 
-👉 260529: Diff-Geo(New) https://sendgb.com/sObYZyG3jBp
+👉 260604: Intelligent Control Textbook https://sendgb.com/i5hp2aeXEMJ
 
-👉 260529: Ventum wind turbine(New) https://sendgb.com/w8S0oX3n2qM
-
-👉 260601: Vibe coding data https://sendgb.com/IWnQwONZRdM
-
-👉 260601: Runnable Robot and Training course https://sendgb.com/qHDtvEe1CBr
-
-👉 260601: Lawn mower https://sendgb.com/HG1tNAVob5u
+👉 260604: Reference book https://sendgb.com/uEPwfq8Mkc0
