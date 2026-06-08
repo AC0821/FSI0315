@@ -9,3 +9,5 @@
 
 👉 260608: Publishing Trend: https://sendgb.com/9kCtA4isPrz
 
+👉 260608: Vibe coding and Agent https://sendgb.com/06g4fKI87OT
+
