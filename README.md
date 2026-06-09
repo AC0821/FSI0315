@@ -11,3 +11,5 @@
 
 👉 260608: Vibe coding and Agent https://sendgb.com/06g4fKI87OT
 
+👉 260609: Applied Sonochemistry https://sendgb.com/7jNSUKq934l
+
