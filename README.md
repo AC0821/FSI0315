@@ -6,4 +6,4 @@
 👉 260620 Software engineering for vibe coding https://sendgb.com/0qHP6Z52KWh
 
 
-👉 260621 AI native Guide https://sendgb.com/ZjszBkLHayu
+👉 260621 AI native Guide https://sendgb.com/K6DZSM0ul8q
