@@ -7,3 +7,6 @@
 
 
 👉 260621 AI native Guide https://sendgb.com/K6DZSM0ul8q
+
+
+👉 260622 Introduction(AI, Blockchain) https://sendgb.com/tuHRrpYFLWO
