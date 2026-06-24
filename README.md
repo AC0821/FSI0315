@@ -12,4 +12,4 @@
 👉 260622 Introduction(AI, Blockchain) https://sendgb.com/tuHRrpYFLWO
 
 
-👉 260622 Running Robot https://sendgb.com/iZ26QJHYUCD
+👉 260622 Running Robot https://sendgb.com/x0Fpifr6Q4z
