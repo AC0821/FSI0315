@@ -5,4 +5,8 @@
  
 👉 260702 Software engineering for vibe coding https://sendgb.com/G8KYSc4krCq
 
+👉 build design https://sendgb.com/7uQkFzC5XGI
 
+👉 LLM research platform https://sendgb.com/T54EupUSQXt
+
+👉 Unmanned Artificial Vehicle https://sendgb.com/AKJS7r2pR5Z
