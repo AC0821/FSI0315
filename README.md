@@ -10,3 +10,5 @@
 👉 LLM research platform https://sendgb.com/T54EupUSQXt
 
 👉 Unmanned Artificial Vehicle https://sendgb.com/AKJS7r2pR5Z
+
+👉 260707 Teaching Data https://sendgb.com/6kH4Spls7zG
