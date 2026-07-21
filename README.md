@@ -5,3 +5,5 @@
 👉 20260721 Lecture data https://sendgb.com/GXcqUQLWNH5
 
 👉 20260721 Energy cost analysis(Emergency) https://sendgb.com/FeUck4a1uZh
+
+👉 20260721 Lecture data2 https://sendgb.com/FgICLY4Z9HJ
